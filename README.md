@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A Treatise OF THE FELICItie, of the life to come.VNSAVORIE TO THE obstinate, alluring to such as are
+
 1. THE PREFACE TO the faithfull Readers.
 
 #####Body#####
